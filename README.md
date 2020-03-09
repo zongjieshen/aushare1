@@ -1,0 +1,2 @@
+# aushare1
+asx
